@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @HaiqaMushtaq
+- 👀 I’m intereste in IT
+- 
